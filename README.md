@@ -1,1 +1,1 @@
-# Ultimatum Share - Legal pages
+# Ultimatum: QR File Transfer - Legal pages
